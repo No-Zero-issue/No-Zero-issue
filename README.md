@@ -1,2 +1,2 @@
 # No-Zero-issue
-We are a team of troubled children
+We are a team of children
